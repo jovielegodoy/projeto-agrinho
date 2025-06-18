@@ -1,0 +1,1 @@
+Usei como aucilio nosso amigo chatgpt para me ajudar com o projeto Agrinho conexão campo e cidade ussei como exemplo para esplicar melhor fiz uma comparções com campo para a cidade para diser quais beneficios o campo tem da cidade e oss beneficios da cidade para o campo e oi isso que eu fiz espero que goste.
